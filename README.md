@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓Still learning to become the best one<br>🤖I'm interested in various AI models, such as machine learning, and NLP.<br>
+🎓Still learning to become the best one<br>🤖I'm interested in various AI models, such as machine learning, and NLP.
 
 
 ## 🌐 Socials:
